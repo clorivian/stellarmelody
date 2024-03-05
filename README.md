@@ -37,7 +37,5 @@
    ╰┈┈┈┈┈┈┈┈➤ 𝚋𝚊𝚜𝚒𝚌 𝚍𝚗𝚒
 
    ╰┈┈┈┈┈┈┈┈➤ 𝚣𝚒𝚘𝚗𝚒𝚜𝚝
-
-   ![PNG image](https://github.com/stellarmelody/stellarmelody-/assets/123318172/fdb85b99-7d47-4f3b-beb3-4d103d768ec7)
-
+ ![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/85ad2adc-ac05-42c3-8299-3738d6d2d99e)
 
