@@ -1,4 +1,6 @@
-![image](https://github.com/stellarmelody/stellarmelody-/assets/123318172/38bde1e9-3b60-490d-851a-bbe3f6ce4273)
+![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/a40a0d8e-7f6b-4548-9e81-d91f0349e1fc)
+
+
 
     💙 ° kariﾉkaeri 彡 ¬ 🪽
 
@@ -9,7 +11,6 @@
    ╰┈┈┈┈┈┈┈┈➤ ২ 🫐 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
    
    ![image](https://github.com/stellarmelody/stellarmelody-/assets/123318172/b5aee753-5205-4003-a3c7-0bd425e656dc)
-
 
      ⌕ 🌌 bfyi! 🦴 ⌟ ꩟
 
@@ -24,13 +25,11 @@
 
 ![image](https://github.com/stellarmelody/stellarmelody-/assets/123318172/776c1e1c-1627-4149-9484-25cba0157f4f)
 
-  
-    ⋆ 🏙️ interact! 📃♥︎ᵎᵎ
+    ⋆ 🖌️ interact! 📃♥︎ᵎᵎ
 
    ╰┈┈┈┈┈┈┈┈➤  𝚜𝚊𝚖𝚎 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝 
 
    ![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/d85806c6-5d70-43b1-a002-6ccc01bb43a7)
-
 
     ╭→ 💤 ❝ dni ❞ 🖇️
 
