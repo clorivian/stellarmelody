@@ -1,14 +1,15 @@
-![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/a40a0d8e-7f6b-4548-9e81-d91f0349e1fc)
+![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/871c613d-9669-4536-9e23-1fe58ca28921)
+
 
 
 
     💙 ° kariﾉkaeri 彡 ¬ 🪽
 
-   ╰┈┈┈┈┈┈┈┈➤ ҂ 𝚜𝚑𝚎ﾉ𝚝𝚑𝚎𝚢 🐟 ｡𓄹 
+   ╰┈┈┈┈┈┈┈┈➤ ҂ 🎸 𝚜𝚑𝚎ﾉ𝚝𝚑𝚎𝚢 🐟 ｡𓄹 
 
     ʚ ꒦ malayﾉeng 𓂃 ⑅ ꒱ 🌀 
   
-   ╰┈┈┈┈┈┈┈┈➤ ২ 🫐 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
+   ╰┈┈┈┈┈┈┈┈➤ ২ 🫐 𝚊𝚜𝚒𝚊𝚗 - 🍷⌇ 
    
    ![image](https://github.com/stellarmelody/stellarmelody-/assets/123318172/b5aee753-5205-4003-a3c7-0bd425e656dc)
 
